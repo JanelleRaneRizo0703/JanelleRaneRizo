@@ -1,4 +1,4 @@
-# About me:
+# About Me
 
 # Hello there, I'm Janelle Rane Rizo! 👋
 
